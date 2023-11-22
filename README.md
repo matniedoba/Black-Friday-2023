@@ -143,6 +143,8 @@ A list of Back November, Black Friday & Cyber Monday promotions and discounts fo
 
 #### 💸 (50% OFF) [ChatDox AI](https://www.chatdox.com/?ref=black_friday_deals_by_MaciejZimoch) - Your Personal AI Assistant. Give instructions to your AI personal assistant. Add multiple data sources, audios, videos, recordings, websites & multiple documents and chat with them in multi language. Flat 50% Off this Black Friday, Coupon Code: **`BF50`** (Valid till 30th Nov)
 
+#### 💸 (50% OFF) [LinkYourFile](https://www.linkyourfile.com/) - Open any file from Notion, Monday.com or Asana without downloading it. | 50% off lifetime with code **BLACKFRIDAY_2023**
+
 -------------
 
 ### AI
